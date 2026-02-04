@@ -31,8 +31,8 @@
 ---
 
 ### 🌐 Connect With Me
-- LinkedIn: https://linkedin.com/in/your-link  
-- GitHub: https://github.com/dishantupreti
+-  https://www.linkedin.com/in/dishant-upreti-81b86b377/
+
 
 ---
 
